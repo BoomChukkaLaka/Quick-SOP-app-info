@@ -2,7 +2,7 @@
 
 If you need help using the app, please contact:
 
-- **Email:** justincampbell027@gmail.com  
+📩 **Email:** justincampbell027@gmail.com  
 - **Response time:** We aim to reply within 2–3 business days.
 
 ---
